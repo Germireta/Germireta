@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Germireta
+- 👀 I’m interested in Games and coding 
+- 🌱 I’m currently learning Ciencias de la computacion
+- 📫 How to reach me German_Reta25
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like dogs
